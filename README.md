@@ -5,7 +5,7 @@
 passionné d'informatique :computer:, de nouvelles technologies :iphone:, mais également de culture japonaise :japanese_castle:, de mangas :books: et de cinéma :movie_camera:.
 </p>
 <p align="center">
-Après 10 années dans le domaine de la vente, j'ai décider de faire de ma passion mon métier
+Après 10 années dans le domaine de la vente, j'ai décidé de faire de ma passion mon métier
 </p>
 <p align="center">
 Je suis un <b>acharné</b> , <b>rigoureux</b> , quand j'entreprend quelque chose, je vise <b>l'excellence</b>.
